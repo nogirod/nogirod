@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... english 
 - 💞️ I’m looking to collaborate on ... plataform
 - 📫 How to reach me ... this email adrees 
-- 😄 Pronouns: ... she this 
+- 😄 Pronouns: ... she 
 - ⚡ Fun fact: ... in love study english and i love cooking for my family 
 
 <!---
